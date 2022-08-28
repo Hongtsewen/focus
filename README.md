@@ -92,3 +92,4 @@ sty:水貨的意義：市場融合，價格影響。有真有假，假須打倒�
 
 ### 附註
 - [洪延慶先生事略記](https://ykhong.oil.com.tw/)
+- [洪哲文-海闊天空](https://sites.google.com/view/htw2021/)
