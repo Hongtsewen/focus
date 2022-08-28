@@ -86,13 +86,13 @@ sty:水貨的意義：市場融合，價格影響。有真有假，假須打倒�
 - sty:精神與原則已然，工具、方法、速度不斷變化。
 
 5. 對於未來的展望. ESG-集合好的人做好的公司。
-**資訊分享者 S+G**
+#### 資訊分享者 S+G
 - 創辦[石油情報](https://www.oil.net.tw/)出版社，發行潤滑相關專業雜誌與書籍。
 - 贊助[台灣摩潤學會](https://www.tstt.org.tw/)，協助提昇台灣潤滑科技。
-**社會服務者 E+S**
+#### 社會服務者 E+S
 - 設立[獎助學金](https://www.oil.com.tw/active_scholarship)，長期資助弱勢學生。
 - 每月兩次的[M1淨山健行隊](https://www.oil.com.tw/active_hiking)，活動已持續十餘年。
-**教育投資者 S+G**
+#### 教育投資者 S+G
 - 贊助音樂教育，長期支持[台灣吉他學會](http://www.guitar.org.tw/)。
 - 長期贊助[台北古典吉他合奏團](https://www.facebook.com/tge2015/)活動。
 
