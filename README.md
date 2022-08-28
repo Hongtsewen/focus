@@ -89,6 +89,7 @@ sty:水貨的意義：市場融合，價格影響。有真有假，假須打倒�
 #### 資訊分享者 S+G
 - 創辦[石油情報](https://www.oil.net.tw/)出版社，發行潤滑相關專業雜誌與書籍。
 - 贊助[台灣摩潤學會](https://www.tstt.org.tw/)，協助提昇台灣潤滑科技。
+- 推廣[ISO-18436](http://www.iso18436.tw/) 認證。
 #### 社會服務者 E+S
 - 設立[獎助學金](https://www.oil.com.tw/active_scholarship)，長期資助弱勢學生。
 - 每月兩次的[M1淨山健行隊](https://www.oil.com.tw/active_hiking)，活動已持續十餘年。
