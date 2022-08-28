@@ -14,7 +14,7 @@ Longterm Focus on the things we learn and we do
 3. 因味全化學而換跑道。
 - sty:把握人生的機會。
 4. 隆福行創立的第一天就是做美孚潤滑油的代理。
-- sty:落地為弟兄，異國友情的支持。
+- sty:落地為弟兄，[異國友情](https://ykhong.oil.com.tw/monty_01.html) 的支持。
 5. 對美孚的建言-相互信任與提攜-美孚倉庫的設立。使用超過1/4世紀。
 - sty:信義計劃區還是縱貫公路邊？
 6. 第二代的投入。 
@@ -33,7 +33,7 @@ Longterm Focus on the things we learn and we do
 ## 3.您身處潤滑油業界多年，曾遇過各式各樣的客戶與問題，是否能分享至今仍有深刻印象的服務案例？之後又是如何克服與解決的？
 1. 服務問題是學習與管理的問題。 
 - sty:除了單人床和雙人床，還有那麼多床。 
-- sty:自學與葵花寶典。 
+- sty:自學與葵花寶典。[張秀月翻譯的第一本英文書](https://www.amazon.com/Lubricants-cutting-fluids-coolants-Wilbert/dp/0843608129)。
 - sty:日本的探索認識[潤滑經濟研究所](https://www.juntsu.co.jp/)的黑川良夫先生。一年後的嘗試-潤滑雜誌。 
 - sty:電腦之路的兩個貴人。
 2. 客戶問題不如說是自身努力與改善的問題。 (客人選擇物美價廉服務好外，誠信最重要。)
