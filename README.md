@@ -7,7 +7,7 @@ Longterm Focus on the things we learn and we do
 
 ## 1.隆福行與埃克森美孚公司配合多年，當初創辦人是如何與其建立合作與信任關係?
 1. 進去一家好公司是運氣，很重要。光復後的和泰商行。 
-- sty:黃烈火《[學習與成長](http://tbdb.ntnu.edu.tw/showBIO.jsp?id=20D5EE10-E2C3-2295-F53F-2768D2FCD0BE)》，張超英《[宮前町九十番地](https://www.thenewslens.com/article/49345》 )
+- sty:黃烈火《[學習與成長](http://tbdb.ntnu.edu.tw/showBIO.jsp?id=20D5EE10-E2C3-2295-F53F-2768D2FCD0BE)》，張超英《[宮前町九十番地](https://www.thenewslens.com/article/49345)》
 - sty:被冤調台北，基隆港邊落淚，半年後調薪一倍。
 2. 和美孚台灣分公司一起成長。 
 - sty:白鐵珊和小洪。
