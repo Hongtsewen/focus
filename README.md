@@ -12,7 +12,7 @@ Longterm Focus on the things we learn and we do
 2. 和美孚台灣分公司一起成長。 
 - sty:白鐵珊和小洪。
 3. 因味全化學而換跑道。
-- sty:把握人生的機會。
+- sty:把握人生的機會。<a href="https://www.oil.net.tw/elite_report/16277" target="_blank">隆福行的創立</a>。
 4. 隆福行創立的第一天就是做美孚潤滑油的代理。
 - sty:落地為弟兄，[異國友情](https://ykhong.oil.com.tw/monty_01.html) 的支持。
 5. 對美孚的建言-相互信任與提攜-美孚倉庫的設立。使用超過1/4世紀。
