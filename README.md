@@ -112,5 +112,11 @@ sty:水貨的意義：市場融合，價格影響。有真有假，假須打倒�
 - [洪延慶先生事略記](https://ykhong.oil.com.tw/)
 - [臺灣潤滑油史百年回顧](https://www.notion.so/f7a4087a452741f0b8058e758450cc4d)
 - [洪哲文-海闊天空](https://sites.google.com/view/htw2021/)
-- [樂在學習](https://hongtsewen.github.io/README.md)
 - [故事](https://storystudio.tw/about)
+
+<details>
+	<summary>My motto</summary>
+	<p>務實嚴謹，精益求精，止於至善。</P>
+	<p>挑戰困難，突破瓶頸，創造價值。</P>	
+</details>
+
