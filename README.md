@@ -1,6 +1,6 @@
 # L-Focus
 
-Longterm Focus on the things we learn and we do
+Longterm Focus on the things we learn and do
 
  
 # 洪哲文的訪談：「隆福行的過去、現在與未來！」
